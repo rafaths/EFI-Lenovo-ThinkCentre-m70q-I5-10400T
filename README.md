@@ -1,0 +1,1 @@
+# EFI-Lenovo-Thinckcentre-m70q-I5-10400T
